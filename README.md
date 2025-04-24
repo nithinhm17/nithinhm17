@@ -1,4 +1,4 @@
-# 💫 About Me:Hii
+# 💫 About Me:Hi,I'm Nithin H M
 I'm currently learning 
 
 
